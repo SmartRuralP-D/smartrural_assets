@@ -1,0 +1,1 @@
+# smartrural_assets
